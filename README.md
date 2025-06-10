@@ -20,7 +20,7 @@ Always learning—working toward ISTQB certifications, exploring cloud technolog
 
 ## 📫 Let’s Connect
 
-Reach me via [your email] • [LinkedIn] • [GitHub]
+Reach me via [mufamadip9@gmai.com] • [https://www.linkedin.com/in/pmufamadi/] • [0767813258]
 
 ## ⚡ Fun Fact
 
